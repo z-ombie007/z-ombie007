@@ -2,7 +2,7 @@
 - 👀 I’m interested c++
 - 🌱 I’m currently learning   university; 
 - 💞️ I’m looking to collaborate on null;
-- 📫 How to reach me ...zoombie007official@gmail.com;
+- 📫 How to reach me  zoombie007official@gmail.com;
 - in free time i like to be a videographer;
 
 
